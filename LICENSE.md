@@ -1,4 +1,4 @@
-# 
+# Exclusivo Wave complementos para Mac OS | VIP Wave complementos para PC Windows. Con seguimiento de inversiones y cumplimiento de políticas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
